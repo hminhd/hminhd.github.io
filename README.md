@@ -1,1 +1,0 @@
-# hminhd.github.io
